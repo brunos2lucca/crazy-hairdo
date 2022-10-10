@@ -2,4 +2,4 @@
 
 Trying my best!
 
-I love :music: :family: and :guitarist:  
+I love 🎼 👪 and 🎸
